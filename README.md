@@ -1,0 +1,1 @@
+# TeruNya1551.github.io
